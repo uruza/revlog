@@ -1,1 +1,1 @@
-ddd
+uruza review blog
